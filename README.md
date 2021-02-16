@@ -1,2 +1,0 @@
-# Renaissance
-Rebirth Of Money
